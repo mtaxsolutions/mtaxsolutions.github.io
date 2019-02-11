@@ -10,6 +10,7 @@ Feel free to schedule an appointment at the link below.  See what times are avai
 
 If you use the link we will send you an email confirming your appointment.  It will even put it on your calendar if you have one of those smart phones.  And you can easily change your appointment online.
 
+As a modern tax service, we can work with you to do your taxes over the in person, over the phone or over FaceTime or other video conferencing.  We understand you are very busy.  So you don't have to see us in person.  But we don't mind if you do.
 
 If you don't like filing out online forms to setup appointments feel to call us at (562) 354-0687 to setup your appointment.  A human will answer.
 
